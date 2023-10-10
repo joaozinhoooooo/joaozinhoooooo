@@ -12,4 +12,4 @@ Meu nome é joao lindo
    
    IG:j.limazzx_
 
-   ![](https://media.tenor.com/IJASx_rtZLkAAAAi/spinning-duck.gif)
+   ![](https://media.tenor.com/Wre8cKhw8NcAAAAC/joao-joao-pedro.gif)
